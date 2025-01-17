@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Low-is
+- 👀 I’m interested in developing cloud-based solutions and scalable data pipelines, including SaaS tools for bioinformatics and data science applications.
+- 💞️ I am open to any collaboration, if deemed suitable for the project. 
+- 📫 How to reach me personal email: lois.randolph@outlook.com | work email: randolphl@uthscsa.edu
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I am an avid rollerblader and got to touch an olympic bronze medal once. 
