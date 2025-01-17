@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Low-is
+- 👋 Hi, I’m Lois (Low-is). I do not no where Superman or Peter Griffin are, they forgot to tell me where they will be.
 - 👀 I’m interested in developing cloud-based solutions and scalable data pipelines, including SaaS tools for bioinformatics and data science applications.
 - 💞️ I am open to any collaboration, if deemed suitable for the project. 
 - 📫 How to reach me personal email: lois.randolph@outlook.com | work email: randolphl@uthscsa.edu
