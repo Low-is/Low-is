@@ -4,10 +4,11 @@
 - 📫 How to reach me:
     - Personal email: [lois.randolph@outlook.com](lois.randolph@outlook.com)
     - Work email: [randolphl@uthscsa.edu](randolphl@uthscsa.edu)
-- 😄 Pronouns: She/Her
-- ⚡ Fun facts:
-      # Rather be rollerblading 🛼
-      # 2/10 shots get made but still love the game! ⛹🏾‍♀️🤭
-      # Love long bike rides to McDonald's 🚵🏾‍♀️
-      # Unapologetically anime fanatic 🥷
-      # Rubix Cube Enthusiast 🤓
+- 😄 **Pronouns:** She/Her  
+- ⚡ **Fun facts:**
+  - 🛼 Rather be rollerblading  
+  - ⛹🏾‍♀️🤭 2/10 shots get made but still love the game!  
+  - 🚵🏾‍♀️ Love long bike rides to McDonald's  
+  - 🥷 Unapologetically anime fanatic  
+  - 🤓 Rubix Cube Enthusiast
+
