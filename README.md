@@ -5,4 +5,9 @@
     - Personal email: [lois.randolph@outlook.com](lois.randolph@outlook.com)
     - Work email: [randolphl@uthscsa.edu](randolphl@uthscsa.edu)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am an avid rollerblader and got to touch an olympic bronze medal once. 
+- ⚡ Fun facts:
+      - Rather be rollerblading 🛼
+      - 2/10 shots get made but still love the game! ⛹🏾‍♀️🤭
+      - Love long bike rides to McDonald's 🚵🏾‍♀️
+      - Unapologetically anime fanatic 🥷
+      - Rubix Cube Enthusiast 🤓
