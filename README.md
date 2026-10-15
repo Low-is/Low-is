@@ -3,7 +3,7 @@
 - 💞️ I am open to any collaboration, if deemed suitable for the project. 
 - 📫 How to reach me:
     - Personal email: [lois.randolph@outlook.com](lois.randolph@outlook.com)
-    - Work email: [randolphl@uthscsa.edu](randolphl@uthscsa.edu)
+    - Work email: [lrando11@jh.edu](lrando11@jh.edu)
 - 😄 **Pronouns:** She/Her  
 - ⚡ **Fun facts:**
   - 🛼 Rather be rollerblading  
