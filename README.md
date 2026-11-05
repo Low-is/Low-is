@@ -27,4 +27,4 @@ I'm a **Data Scientist at Johns Hopkins**, working at the intersection of **pedi
 
 And no, I still don't know where Superman or Peter Griffin are. They forgot to tell me where they'd be.
 
-![RStudio](https://shields.io)
+![R](https://img.shields.io/badge/R-%3E%3D4.3-blue?logo=r)
